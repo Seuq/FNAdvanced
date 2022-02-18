@@ -5,4 +5,4 @@
 </p>
 <h3>⠀</h3>
 <h4 align="center">Fortnite advanced settings that can take your game to the next level!</h4>
-<h4 align="center">Quick Download: https://bit.ly/3Bppgak</h4>
+<h4 align="center">Quick Download: UPDATING</h4>
